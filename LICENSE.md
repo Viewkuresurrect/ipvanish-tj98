@@ -1,4 +1,4 @@
-
+Novo IPVanish Plugin | suporte a torrent + política de não registro é o melhor IPVanish plugin com suporte a torrent e política de não registro. Seguro e otimizado.
 
 
 
