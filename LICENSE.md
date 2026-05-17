@@ -1,10 +1,10 @@
-جديد IPVanish إضافة | دعم التورنت + سياسة عدم تسجيل البيانات هو أفضل IPVanish إضافة مع دعم التورنت و سياسة عدم تسجيل البيانات. آمن ومُحَسّن.
+
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://Viewkuresurrect.github.io/ipvanish-tj98/ ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
  |---------------------|----------------------:|
 
 
