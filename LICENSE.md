@@ -1,10 +1,10 @@
-New IPVanish Plugin | torrenting support + no-logs policy is the best IPVanish plugin with torrenting support and no-logs policy. Secure and optimized.
+
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://Viewkuresurrect.github.io/ipvanish-tj98/ ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
  |---------------------|----------------------:|
 
 
